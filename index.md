@@ -1,2 +1,3 @@
-# Shigeo Hakkaku
-Researcher at NTT
+# Research Interests
+
+# Biography
